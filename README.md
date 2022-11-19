@@ -1,4 +1,4 @@
-# Restaurtent--App-Design🎗🏹⚔🗡
+# Restaurtant-App-Design🎗🏹⚔🗡
 
 https://www.figma.com/file/9HqT5uCPs4okXQ0trNxAh2/restaurtant?t=5Tq7mDUcujlTZyxr-1
 
